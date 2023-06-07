@@ -607,7 +607,7 @@ You know you have come to the right place when you reach a FAIZO PRIVATE LIMITED
 
 ### People Page:
 
-![image](https://github.com/MohammedFaizal05/productcompanywebsite/assets/120553195/0348d752-6b88-4e11-9501-9887a9d4bf0f)
+![image](https://github.com/MohammedFaizal05/productcompanywebsite/assets/120553195/fc5bae22-56b2-44b4-b941-fa3ec85095d1)
 
 ### Contact Page:
 
